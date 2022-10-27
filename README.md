@@ -1,0 +1,1 @@
+# wallpaperdecor.web.app
